@@ -1,6 +1,8 @@
 # extended-life
 
 ### Sep. 12 
+- a seminar held at HelloWork Ibaraki, on Sep. 12, 2024 
+  - https://youtu.be/OaouqpR3ANU
 - YouTube:
   - https://youtu.be/lUNBlD05YLY
   - https://youtube.com/shorts/QPWCl1aHVvU
