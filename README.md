@@ -1,5 +1,13 @@
 # extended-life
 
+### Sep. 17 
+- YouTube:
+  - https://youtu.be/x760h2MLk_4
+  - https://youtube.com/shorts/fO7sTfA6h1w
+- これらの動画は来月の頭には削除します。(サーバ容量確保のため) 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep17-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep17-b2.mp4
+
 ### Sep. 12 
 - a seminar held at HelloWork Ibaraki, on Sep. 12, 2024 
   - https://youtu.be/OaouqpR3ANU
