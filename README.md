@@ -1,5 +1,13 @@
 # extended-life
 
+### Sep. 22 
+- YouTube: 
+  - https://youtu.be/8zr46yHN1tk
+  - https://youtu.be/8YIWt6m53vE
+- これらの動画は来月の頭には削除します。(サーバ容量確保のため) 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep22-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep22-b2.mp4
+
 ### Sep. 17 
 - YouTube:
   - https://youtu.be/x760h2MLk_4
