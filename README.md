@@ -1,6 +1,7 @@
 # extended-life
 
 ### Sep. 22 
+- **Fキャストでの勤務分は今日記帳した分で最後となりますから次回は勤務先の給与支給日以降となります** 
 - YouTube: 
   - https://youtu.be/8zr46yHN1tk
   - https://youtu.be/8YIWt6m53vE
