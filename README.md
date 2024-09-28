@@ -1,6 +1,9 @@
 # extended-life
 
 ### Sep. 28 
+- YouTube: 
+  - https://youtu.be/nAInXMxYgas
+  - https://youtube.com/shorts/7sByH_K-IcU
 - これらの動画は来月の頭には削除します。(サーバ容量確保のため)
 - 関西みらい銀行 高槻支店
   - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-bk1.mp4
