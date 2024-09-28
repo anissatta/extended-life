@@ -1,5 +1,10 @@
 # extended-life
 
+### Sep. 29 
+- アマゾンが給与関連の業務を委託しているペイロールから送られてきた源泉徴収票等を撮影したものです。
+  - https://youtu.be/uBcAHuonuxo
+  - https://youtu.be/PkxYCIHsrug
+
 ### Sep. 28 
 - YouTube: 
   - https://youtu.be/nAInXMxYgas
