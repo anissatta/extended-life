@@ -4,6 +4,8 @@
 - アマゾンが給与関連の業務を委託しているペイロールから送られてきた源泉徴収票等を撮影したものです。
   - https://youtu.be/uBcAHuonuxo
   - https://youtu.be/PkxYCIHsrug
+- ※下記のように再生画質をHDに設定すると小さな文字も判別出来るかと思います。
+  - ![tip1](tip1.jpg)
 
 ### Sep. 28 
 - YouTube: 
