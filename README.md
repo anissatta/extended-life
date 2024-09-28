@@ -1,6 +1,19 @@
 # extended-life
 
 ### Sep. 28 
+- これらの動画は来月の頭には削除します。(サーバ容量確保のため)
+- 関西みらい銀行 高槻支店
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-bk1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-bk2.mp4
+- (SMBC口座への転送) 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-bkt.mp4
+- ゆうちょ銀行 (支店名は分かりませんが高槻センター街の近くです) 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-by1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-by2.mp4
+- 三井住友銀行 高槻支店 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-bs1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/sep28-bs2.mp4
+
 もしかすると私がアマゾン退職直後に書いた「(9月の)チュソクは過ごせるだろうが、ハングラル(ハングルの日; 10月9日)頃には死が実感出来ているだろう」という予測がもとで今世間で何らかの噂が流れているのかも知れません。
 
 ただこの予測は私を雇う会社がないという思い込みに基づいており不正確であったばかりか、当時「最後時の家財撤去費用」に充てるとしていた他口座の残高も正確に把握出来ていませんでした。またタイミーやフルキャストによる日雇いの仕事をしたことにより、計約10万円の収入が発生しました。
