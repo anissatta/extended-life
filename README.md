@@ -1,5 +1,14 @@
 # extended-life
 
+### Oct. 4 
+- https://youtu.be/2v2qYRV1eVg
+- Dear people who are going to join Seoul International Fireworks Festival tomorrow, please note that:
+1. My death shan't be happening even on this day. 
+2. Billie's last album was not completely successful. 
+3. She knows it. 
+4. She knows it & is trying to pretend not to know it knowing that most of you won't know it. 
+5. Please do not rush to it. You can watch it remotely. 
+
 ### Sep. 29 
 PS: 源泉徴収票は年のはじめに前年の年末調整の結果に基づいて発行されますが、私のように年の途中で退職した場合、退職時点までの所得に基づいて(年末調整を待たずして)発行されます。
 
