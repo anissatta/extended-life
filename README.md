@@ -4,6 +4,7 @@
 - **UPDATE:** SMBC Takatsuki Branch:
   - https://youtu.be/vTLM1lqbKtQ
   - https://youtu.be/ILoC23bZ2xk
+  - https://youtu.be/PYWRDm37_CQ
 - 下記の通り振り込まれていました。(約14万円の支給と、家賃約4.5万円の引落し)銀行へは退勤後一旦帰宅した後に行きます。
   - https://youtu.be/ZidL8laUq50
   - https://youtu.be/PF2iETa8HI0
