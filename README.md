@@ -1,6 +1,7 @@
 # extended-life
 
 ### Nov. 25 
+- **NOTE:** I'll delete these soon so please download them now.  
 - https://kangdaegae.web.fc2.com/misc/ipoint/2024/nov25-b1.mp4
 - https://kangdaegae.web.fc2.com/misc/ipoint/2024/nov25-b2.mp4
 - https://kangdaegae.web.fc2.com/misc/ipoint/2024/nov25-b3.mp4
