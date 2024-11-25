@@ -6,6 +6,11 @@
 - https://kangdaegae.web.fc2.com/misc/ipoint/2024/nov25-b2.mp4
 - https://kangdaegae.web.fc2.com/misc/ipoint/2024/nov25-b3.mp4
 
+- YouTube:
+  - https://youtube.com/shorts/0Io2vaztr50
+  - https://youtube.com/shorts/dDaugNKpl_U
+  - https://youtube.com/shorts/iMTssISWuTw
+
 ### Oct. 25 
 - **UPDATE:** SMBC Takatsuki Branch:
   - https://youtu.be/vTLM1lqbKtQ
