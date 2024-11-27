@@ -1,5 +1,12 @@
 # extended-life
 
+### Nov. 27 
+- 下記は今日郵便箱から回収した国民健康保険料還付(充当)通知書を撮影したものです。
+  - *下記は容量確保のためいずれ削除します* 
+    - https://kangdaegae.web.fc2.com/misc/ipoint/2024/nov27-m.mp4
+  - YouTube: 
+    - https://youtube.com/shorts/ym6PVjXBIWw
+
 ### Nov. 25 
 - **NOTE:** I'll delete these soon so please download them now.  
 - https://kangdaegae.web.fc2.com/misc/ipoint/2024/nov25-b1.mp4
