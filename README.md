@@ -1,5 +1,13 @@
 # extended-life
 
+### Dec. 25 
+- 今朝ローソンにて撮影したものです。
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/dec25-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/dec25-l2.mp4
+  - YouTube: 
+    - https://youtube.com/shorts/jOAUN85cxn4
+    - https://youtube.com/shorts/VzIkHvCgIQ0
+
 ### Dec. 14 
 - 今朝ローソンにて市民税の支払いに必要な現金の引き出し 及び 支払いを行った際に下記の動画を撮影しましたので掲示します。引き出しと支払いそれぞれにおいて2つのカメラを用いて同時に撮影しています。
   - ( 現金の引き出し ) 
