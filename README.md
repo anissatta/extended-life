@@ -1,6 +1,14 @@
 # extended-life
 
 ### Dec. 25 
+- PS: こちらの方が画質が良いです。
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/dec25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/dec25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2024/dec25-b3.mp4
+- 先にYouTubeにアップロードしました。夕食後Ujutubeにもアップロードします。
+  - https://youtube.com/shorts/gSZlPaoewkY
+  - https://youtube.com/shorts/SAYBWVjVYzA
+  - https://youtube.com/shorts/ZnYwCGc7nmQ
 - 今朝ローソンにて撮影したものです。
   - https://kangdaegae.web.fc2.com/misc/ipoint/2024/dec25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2024/dec25-l2.mp4
