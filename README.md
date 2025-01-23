@@ -5,6 +5,15 @@
   - 転載元: https://www1.touki.or.jp/news/1715_info.html
 
 ### Jan. 22, 2025 
+- 今朝ローソンで行った残高照会の様子です。(今日は帰宅後も通帳動画アップロード等の作業を行いますので手紙を書くのがやや遅れるかと思います) 
+  - カメラ1: 
+    - https://youtube.com/shorts/Zq2p3L3mRRo
+    - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jan24-l1.mp4
+  - カメラ2: 
+    - https://youtube.com/shorts/7IHXP_TvIE4
+    - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jan24-l2.mp4
+
+### Jan. 22, 2025 
 - 給与支給日は24日(金)です。 
   - **Part one** 
     - YouTube: https://youtube.com/shorts/ItuV1cie6WA
