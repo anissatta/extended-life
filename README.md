@@ -5,6 +5,14 @@
   - 転載元: https://www1.touki.or.jp/news/1715_info.html
 
 ### Jan. 24, 2025 
+- PS: こちらの方が画質が良いです。
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jan24-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jan24-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jan24-b3.mp4
+- 残りの作業は夕食後にします
+  - https://youtube.com/shorts/I6CSCvBkpIw
+  - https://youtube.com/shorts/vMiEc1Y9ky4
+  - https://youtube.com/shorts/RxbwViJHWjw
 - 今朝ローソンで行った残高照会の様子です。(今日は帰宅後も通帳動画アップロード等の作業を行いますので手紙を書くのがやや遅れるかと思います) 
   - カメラ1: 
     - https://youtube.com/shorts/Zq2p3L3mRRo
