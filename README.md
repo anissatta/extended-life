@@ -8,7 +8,7 @@
 - PS: こちらの方が画質が良いです。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/feb25-b1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/feb25-b2.mp4
-  -https://kangdaegae.web.fc2.com/misc/ipoint/2025/feb25-b3.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/feb25-b3.mp4
 - YouTube: 
   - https://youtube.com/shorts/FG5JO0_1GB4
   - https://youtube.com/shorts/0nSSJ-vvATI
