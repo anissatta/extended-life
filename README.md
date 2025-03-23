@@ -4,6 +4,14 @@
 - これまでの経験から「登記情報提供サービスがメンテナンスにより利用不能となる日には暴走族などの訪問により街が騒がしくなり易い」ということが言えるのでここに本サービスのメンテナンス予定を転載します。私はカレンダー(高槻市から無料配布された健診日などが記載されたカレンダーです)のこれらのメンテナンス日のところに「monkey festa」と記入していますが、もしこれらの日に何らかの登記内容をご覧になる予定の方がおられたら日程変更をお願いします。(ちなみにこれらの日はいずれも法務局の休業日と重なってもいますので、1/11-1/13の期間中に登記事項証明書を請求するのは不可能です。郵送での取得を事前に申請してこの期間中に受け取ることは可能なのでGoogleで「登記ねっと」と検索してみて下さい)
   - 転載元: https://www1.touki.or.jp/news/1715_info.html
 
+### Mar. 23, 2025 
+- 給料日前残高です。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/mar23-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/mar23-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/4fQBdhAbwX4
+  - https://youtube.com/shorts/I9ryA_HdltE
+
 ### Feb. 25, 2025 
 - PS: こちらの方が画質が良いです。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/feb25-b1.mp4
