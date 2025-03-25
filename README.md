@@ -5,6 +5,14 @@
   - 転載元: https://www1.touki.or.jp/news/1715_info.html
 
 ### Mar. 25, 2025 
+- 銀行動画です。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/mar25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/mar25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/mar25-b3.mp4
+- YouTube: 
+  - https://youtube.com/shorts/FSvkhGw8LvY
+  - https://youtube.com/shorts/llgZ2GjuhJc
+  - https://youtube.com/shorts/g4k9Dwh83Ms
 - PS: 尹大統領に対する宣告は今週に行われる場合は27(木)か28(金)になるだろうとのことでしたが、下記の記事によると27日には他の事件が扱われるためとりあえずこの日ではなさそうです。
   - https://news.kbs.co.kr/news/view.do?ncd=8208746
 - 銀行には退勤後寄ります 
