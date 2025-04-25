@@ -5,6 +5,21 @@
   - 転載元: https://www1.touki.or.jp/news/1715_info.html
 
 ### Apr. 25, 2025 
+- PS: こちらの方が画質が良いです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/apr25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/apr25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/apr25-b3.mp4
+- 銀行で撮影したものです: 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-r/apr26-10.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-r/apr26-11.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-r/apr26-12.mp4
+- YouTube: 
+  - https://youtu.be/UKaTarsVAQ8
+  - https://youtu.be/AvGqz5o1ks4
+  - https://youtu.be/c6w69yNgc_M
+
+---- 
+
 - 銀行には退勤後寄ります。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/apr25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/apr25-l2.mp4
