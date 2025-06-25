@@ -5,6 +5,18 @@
   - 転載元: https://www1.touki.or.jp/news/1715_info.html
 
 ### Jun. 25, 2025 
+- PS: こちらの方が画質が良いです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jun25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jun25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jun25-b3.mp4
+- 三井住友銀行茨木支店で撮影した動画です。 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-ae/jun26-10.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-ae/jun26-11.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-ae/jun26-12.mp4
+- YouTube: 
+  - https://youtube.com/shorts/MFkLDmzBmAU
+  - https://youtube.com/shorts/sdaBgFLM-ng
+  - https://youtube.com/shorts/MAFyNiJRBQM
 - 給料日朝時点での残高です。本日25日にはURの家賃引き落しも行われる為その分少なくなっています。
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jun25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jun25-l2.mp4
