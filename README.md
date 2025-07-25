@@ -5,6 +5,18 @@
   - 転載元: https://www1.touki.or.jp/news/1715_info.html
 
 ### Jul. 25, 2025 
+- 8 PM: 銀行で撮影した動画です: 
+- PS: こちらの方が画質が良いです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jul25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jul25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jul25-b3.mp4
+- https://aikidoabeno.web.fc2.com/_json/sarang-ai/jul26-10.mp4
+- https://aikidoabeno.web.fc2.com/_json/sarang-ai/jul26-11.mp4
+- https://aikidoabeno.web.fc2.com/_json/sarang-ai/jul26-12.mp4
+- YouTube: 
+  - https://youtube.com/shorts/jpVKR6-08XQ
+  - https://youtube.com/shorts/0EVdiRwHf6U
+  - https://youtube.com/shorts/v4knqUGV6sQ
 - 3 AM: 今日は家賃(UR)引落とし日でもあります。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jul25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/jul25-l2.mp4
