@@ -1,6 +1,29 @@
 # extended-life
 
 ### August, 2025 
+- 8/25: 残高照会はこちらの方が画質が良いです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/aug25-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/aug25-l2.mp4
+- PPS: 近所のローソンで残高照会を行いました。ATMの声が変わっていたようですが、調べてみたところこれは「いらっしゃいま声優ATM」というキャンペーンによるものであり、下記のページによると8月25日から小林千晃さんの声になっているようです。給料日であり、三井住友銀行が早朝にシステムを停止する月曜日でもある2025/8/25にこんな変更をされたのと今流れている噂とに何らかの関連があるのかも知れません。 
+  - いらっしゃいま声優ATMキャンペーン第19弾 - ローソン銀行 
+    - https://www.lawsonbank.jp/lp/atmseiyucp/
+  - https://aikidoabeno.web.fc2.com/_json/sarang-am/aug26-33.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-am/aug26-34.mp4
+- YouTube: 
+  - https://youtube.com/shorts/jhiSV9w1LkQ
+  - https://youtube.com/shorts/KtmcoWF50qM
+- PS: こちらの方が画質が良いです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/aug25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/aug25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/aug25-b3.mp4
+- Ujutubeには夕食後アップロードします。 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-am/aug26-8.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-am/aug26-9.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-am/aug26-10.mp4
+- YouTube: 
+  - https://youtube.com/shorts/j7mPxN8Em3Y
+  - https://youtube.com/shorts/X_QLR5w5BMA
+  - https://youtube.com/shorts/ATkB1s8DJgc
 - :heavy_check_mark: **8/25 (月) は早朝の残高照会を行いません。** 三井住友銀行のシステムが「毎週日曜21:00～翌月曜7:00は休業」する為です。下記によるとこれはローソンATMだけでなく本支店に設置されているATMでも同様らしいです。( *「※2 各サービスのご利用時間は最長営業時間店舗でのものであり、各店舗により営業時間が異なります。また、 **毎週日曜21:00～翌月曜7:00は休業** となります」* とありますね) 
 - *三井住友銀行の本支店ATM ： 三井住友銀行* 
   - https://www.smbc.co.jp/kojin/tenpo/atm/honshiten.html
