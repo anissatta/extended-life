@@ -1,6 +1,12 @@
 # extended-life
 
 ### August, 2025 
+- :new: 8/30: 先日残高照会をした際には存在しなかったクレーンゲームの設置を今朝確認しましたので、今日再度残高照会をすることにしました。給料日当日よりは多少残高は減っています。(冒頭に明細票が写っていますが今朝現金を引き出した際にクレーンゲームの存在に気付いたのです) 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-an/aug31-51.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-an/aug31-52.mp4
+- YouTube: 
+  - https://youtube.com/shorts/hikcKJwQS9g
+  - https://youtube.com/shorts/HOF07m3Hh0I
 - 8/25: 残高照会はこちらの方が画質が良いです。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/aug25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/aug25-l2.mp4
