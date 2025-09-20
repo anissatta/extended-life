@@ -1,5 +1,13 @@
 # extended-life
 
+### September, 2025 
+- 9/20: ※9/25には家賃(UR)の引き落としもある為残高の増分は支給額からそれを相殺したものとなります。
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep20-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep20-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/JnLmkL7o_os
+  - https://youtube.com/shorts/NqfZlTL8FYQ
+
 ### August, 2025 
 - :new: 8/30: 先日残高照会をした際には存在しなかったクレーンゲームの設置を今朝確認しましたので、今日再度残高照会をすることにしました。給料日当日よりは多少残高は減っています。(冒頭に明細票が写っていますが今朝現金を引き出した際にクレーンゲームの存在に気付いたのです) 
   - https://aikidoabeno.web.fc2.com/_json/sarang-an/aug31-51.mp4
