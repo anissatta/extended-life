@@ -1,6 +1,12 @@
 # extended-life
 
 ### September, 2025 
+- 9/25 (朝): 今朝ローソンにて撮影したものです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/Ad7kqEtMw18
+  - https://youtube.com/shorts/8fgL3zUozRQ
 - 9/21 (1): コノミヤとトップワールドのチャージ機の外観が瓜二つであるのはこれらのスーパーがいずれもバリューデザイン社のシステムを利用している事に由来するものです。 
   - バリューデザインのウェブサイトにはトップワールドへの導入事例が紹介されています: 
     - https://cs.valuedesign.jp/case/list/topworld
