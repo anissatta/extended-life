@@ -1,6 +1,18 @@
 # extended-life
 
 ### September, 2025 
+- 9/25 (夕) PS: こちらの方が画質が良いです: 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-b3.mp4
+- 9/25 (夕) 記帳の様子です: 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-as/sep26-8.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-as/sep26-9.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-as/sep26-10.mp4
+- YouTube: 
+  - https://youtube.com/shorts/MLaEy4OADkQ
+  - https://youtube.com/shorts/2CES6c91v2c
+  - https://youtube.com/shorts/YhVfwkIYD_A
 - 9/25 (朝): 今朝ローソンにて撮影したものです。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-l2.mp4
