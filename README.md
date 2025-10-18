@@ -1,5 +1,11 @@
 # extended-life
 
+### October, 2025 
+- 公判期日の確認方法を動画でも示しました。これで分かるように次の公判は20日(月)に開かれます。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct18-i.mp4
+- YouTube: 
+  - https://youtu.be/inEWulSc-4M
+
 ### September, 2025 
 - 9/25 (夕) PS: こちらの方が画質が良いです: 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/sep25-b1.mp4
