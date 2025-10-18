@@ -1,6 +1,12 @@
 # extended-life
 
 ### October, 2025 
+- 10/18: ローソンでの残高照会の様子です。 (今月は25日が土曜日ですので、給料日はその前日である24日となります): 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct18-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct18-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/7v9fj4mV440
+  - https://youtube.com/shorts/qTkleUVOHWs
 - 公判期日の確認方法を動画でも示しました。これで分かるように次の公判は20日(月)に開かれます。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct18-i.mp4
 - YouTube: 
