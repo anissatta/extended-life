@@ -1,6 +1,12 @@
 # extended-life
 
 ### October, 2025 
+- 10/24 (朝): 給料日当日の残高です。(明日家賃(UR)の引き落しがあります) 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/IcPTT65X6SE
+  - https://youtube.com/shorts/F_ZfxXBLMm0
 - 10/18: ローソンでの残高照会の様子です。 (今月は25日が土曜日ですので、給料日はその前日である24日となります): 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct18-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct18-l2.mp4
