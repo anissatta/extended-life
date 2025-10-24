@@ -1,6 +1,14 @@
 # extended-life
 
 ### October, 2025 
+- 10/24 (夕): 銀行での記帳の様子です。
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-b3.mp4
+- YouTube: 
+  - https://youtube.com/shorts/1iWtYD1tzsw
+  - https://youtube.com/shorts/E74h1y4lRCo
+  - https://youtube.com/shorts/Hv2SOEoOTxA
 - 10/24 (朝): 給料日当日の残高です。(明日家賃(UR)の引き落しがあります) 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-l2.mp4
