@@ -1,5 +1,13 @@
 # extended-life
 
+### November, 2025 
+- 11/23: 給料日前残高です。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov23-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov23-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/ndPDOu2YSac
+  - https://youtube.com/shorts/178xJ5e7arg
+
 ### October, 2025 
 - 10/24 (夕): 銀行での記帳の様子です。
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/oct24-b1.mp4
