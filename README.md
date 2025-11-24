@@ -1,6 +1,12 @@
 # extended-life
 
 ### November, 2025 
+- 11/25(早朝): ※25日には家賃(UR)の引き落としもありますので残高の増分はそれを相殺したものとなります。
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov25-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov25-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/8eqe5QifQG0
+  - https://youtube.com/shorts/eiI8Uza_t84
 - 11/23: 給料日前残高です。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov23-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov23-l2.mp4
