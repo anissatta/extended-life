@@ -1,6 +1,18 @@
 # extended-life
 
 ### November, 2025 
+- 11/25(夕): 今日銀行で撮影したものです(こちらの方が画質が良いです): 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov25-b3.mp4
+- 若干画質が落ちます: 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bc/nov26-8.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bc/nov26-9.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bc/nov26-10.mp4
+- YouTube: 
+  - https://youtube.com/shorts/Bbcv1tFz5WY
+  - https://youtube.com/shorts/-_FtAhmkG4k
+  - https://youtube.com/shorts/64ogLecqtSg
 - 11/25(早朝): ※25日には家賃(UR)の引き落としもありますので残高の増分はそれを相殺したものとなります。
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/nov25-l2.mp4
