@@ -1,7 +1,7 @@
 # extended-life
 
 ### December, 2025 
-- 12/25: 給料日前残高です。(25日には家賃(UR)の引き落としもありますので残高の増分はそれを相殺したものとなります) 
+- 12/25: 給料日当日の残高です。(25日には家賃(UR)の引き落としもありますので残高の増分はそれを相殺したものとなります) 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/dec25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/dec25-l2.mp4
 - YouTube: 
