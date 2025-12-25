@@ -1,7 +1,19 @@
 # extended-life
 
 ### December, 2025 
-- 12/25: 給料日当日の残高です。(25日には家賃(UR)の引き落としもありますので残高の増分はそれを相殺したものとなります) 
+- PS: こちらの方が画質が良いです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/dec25-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/dec25-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2025/dec25-b3.mp4
+- 12/25 (夕): 銀行で撮影した動画です: 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bg/dec26-8.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bg/dec26-9.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bg/dec26-10.mp4
+- YouTube: 
+  - https://youtube.com/shorts/zLUdzK34ZAc
+  - https://youtube.com/shorts/0cL5LwQC4GQ
+  - https://youtube.com/shorts/AiRKcVl-Lpc
+- 12/25 (早朝): 給料日当日の残高です。(25日には家賃(UR)の引き落としもありますので残高の増分はそれを相殺したものとなります) 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/dec25-l1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2025/dec25-l2.mp4
 - YouTube: 
